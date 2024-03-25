@@ -1,2 +1,3 @@
 - [DSO 138 Oscilloscope from JYE Tech vs. FNIRSI - Genuine vs. Fake?](https://youtu.be/n13fvHaG72Y)
 - [DSO138 Oscilloscope Counterfeit or Original](https://youtu.be/YVpK1abKbts)
+- [Unboxing Review Counterfeit $20 Oscilloscope](https://youtu.be/8F-gskotMgY)
