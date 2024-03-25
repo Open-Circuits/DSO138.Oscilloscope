@@ -1,0 +1,1 @@
+- [Complete Guide How to Upgrade DSO 138 Oscilloscope Firmware](https://youtu.be/YpKFcAGDFa4)
